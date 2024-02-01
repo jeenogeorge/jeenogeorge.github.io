@@ -1,4 +1,4 @@
-## Week 5 of 2024 : Towards Social Media Visibility
+## Week 5 of 2024 : Published Works
 
 Click the link below to get a glance of my works:
 
