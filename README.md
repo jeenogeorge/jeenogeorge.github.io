@@ -1,3 +1,5 @@
+Find my weekly posts here - https://jeenogeorge.github.io
+
 Follow along - https://chadbaldwin.net/2021/03/14/how-to-build-a-sql-blog.html
 
 # To make a new post
