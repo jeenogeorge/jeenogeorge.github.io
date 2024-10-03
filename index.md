@@ -1,1 +1,1 @@
-This is planned as a journal documenting my experience with life and work.
+The energy behind creating this content comes from my passion for using data to drive climate solutions that inspire collaboration, inform decisions, and spark action.
